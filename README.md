@@ -1,0 +1,1 @@
+# projeto_figurinhasdacopa2026
